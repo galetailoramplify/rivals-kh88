@@ -1,4 +1,4 @@
-#  
+#  secure Script for aura ascension offers the most advanced aura ascension Script, with no cooldown and auto-farm. Perfect for dominating any match.
 
 
 
